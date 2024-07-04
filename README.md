@@ -1,1 +1,0 @@
-# IshikawaKeita.github.io
